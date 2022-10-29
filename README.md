@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FalconShabaaz
 - 👀 I’m interested in ... Playing Cricket
-- 🌱 I’m currently learning ... Computer Science
+- 🌱 I’m currently percieving ... Computer Science
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... insta:- @prinzzy_shabaaz08
 
