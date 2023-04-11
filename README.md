@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @FalconShabaaz
-- 👀 I’m interested in ... Playing Cricket
+- 👋 Hi, I’m Mohammed Shabaaz
+- 👀 I am a Data Science Enthuaist
 - 🌱 I’m currently percieving ... Computer Science Engineering
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... insta:- @prinzzy_shabaaz08
